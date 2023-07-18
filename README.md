@@ -1,8 +1,5 @@
 Prince E. Eyo B.A, MS.C. Resume Website 
 
-
-Plan on constantly updating and modifying the portilio. 
+Plan on constantly updating and modifying this portfolio. 
 
 Thanks for viewing.
-
-Please go checkout my Books, Podcast, and other content creations. @princeeebamsc 
